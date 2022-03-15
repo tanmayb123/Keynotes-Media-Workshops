@@ -1,4 +1,4 @@
-# Keynotes-Media-Workshops
+# Keynotes, Media, and Workshops
 
 Some of the educational institutions I've held workshops for:
 
